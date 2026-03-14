@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **HTML5, CSS3, Javascript.**
 
-- 📫 How to reach me **abdulhanan7045@gmail.com**
+- 📫 How to reach me **codewithhanaan@gmail.com**
 
 - ⚡ Fun fact **I talk to computers more than people—and they usually listen. 😅**
 
